@@ -1,1 +1,1 @@
-# Oil-and-Gas-Metal-mining-domain-Spare-Stock
+# Oil-and-Gas-Metal-Mining-domain-Spare-Stock
